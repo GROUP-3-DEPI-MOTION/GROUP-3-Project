@@ -1,1 +1,1 @@
-[# GROUP 3 Project - DEPI Motion Graphics Final Motion Graphics Graduation Project for DEPI Group 3. You can access the full project files via the following Google Drive link: (https://drive.google.com/drive/folders/1A1ilQudnZXQdoFwGctM0COMQdxV_YSVp?usp=drive_link)](https://drive.google.com/drive/folders/1Ai1lQudnZXQdoFwGctM0COMQdxV_YSVp?usp=drive_link)
+https://drive.google.com/drive/folders/1Ai1lQudnZXQdoFwGctM0COMQdxV_YSVp?usp=drive_link
